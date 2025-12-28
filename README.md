@@ -1,1 +1,3 @@
 # wow-12-28-2025-13-46-stronghold1-south-BCCRSS
+
+![Uploading image.png…]()
